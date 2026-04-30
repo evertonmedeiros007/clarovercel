@@ -1,2 +1,0 @@
-# clarovercel
-ClaroVPN-NIELTERESINA
